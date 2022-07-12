@@ -26,4 +26,4 @@ If you need help, feel free to join me on [Discord](https://discord.gg/DA3PFWwDv
 
 # Author
 
-Im Xghost12S i am  Developer.
+Xghost12Ss
